@@ -1,8 +1,8 @@
 Bob Marley: One Love Streaming vf les films et les livres tiennent une partie de mon cœur. Et de cette façon, j’aime tout. Non, je ne parlerai pas de la scène entière, je pourrais finir avec un nouveau film si je le faisais,
 
-Regarder ➡ [Bob Marley: One Love VOIR STREAMING](https://jm.filmy-zilla.lat/movie/802219)
+Regarder ➡ [Bob Marley: One Love VOIR STREAMING](https://jm.filmy-zilla.lat/fr/movie/802219)
 
-Telecharger ➡ [Bob Marley: One Love FILM COMPLETHD](https://jm.filmy-zilla.lat/movie/802219)
+Telecharger ➡ [Bob Marley: One Love FILM COMPLETHD](https://jm.filmy-zilla.lat/fr/movie/802219)
 
 Sortie du film Bob Marley: One Love : Date de sortie?
 La suite d’Bob Marley: One Love, a été confirmé un mois après la sortie du premier film au cinéma. Le 19 mai 2023, Bob Marley: One Love 2 avait été confirmé. Quand pourrons-nous le voir en salle ? Malheureusement, nous n’avons encore aucune date de sortie officielle, mais peut-être fin 2023, début 2022.
